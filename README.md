@@ -1,1 +1,0 @@
-# Ankurita-s-AC-Logic
